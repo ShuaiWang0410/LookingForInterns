@@ -1,2 +1,2 @@
 # LookingForInterns
-My Current Status
+My Current Status is LOOKING FOR AN INTERNSHIP!
